@@ -33,3 +33,4 @@ techniques through photography and video, and share the process along the way.
 - **LinkedIn:** [Robyn Karabo Kgabi](https://www.linkedin.com/in/robyn-karabo-kgabi-405518352/)
 
 Open to collaborations, brand partnerships, and client print projects.
+![Print sample](Screenshot-2026-07-13-205807.png)
